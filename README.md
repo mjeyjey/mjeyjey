@@ -1,5 +1,5 @@
-👽 Greetings... I Think? mya-nee
-Hello! mya-nee, I just landed here and honestly, I have no idea what I’m doing mya-nee.
+👽 Hello... I Think? mya-nee
+I just landed here and honestly, I have no idea what I’m doing mya-nee.
 I heard about this place called GitHub... it’s supposed to be for “coders”? I’m trying... but my brain feels like space dust mya-nee.
 
 🪐 About Me mya-nee
